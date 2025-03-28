@@ -10,7 +10,7 @@ Algunas cosas de mi:
 - Tengo 20 años.
 - Vivo en Martín Coronado, Tres de Febrero.
 - Me gusta mucho la programación y la matemática.
-- Suelo escuchar Twenty One Pilots al estudiar.
+- Suelo escuchar Twenty One Pilots al estudiar. Mi canción favorita es Ride :)
 - Tengo dos perritas: 
 
 ###### Luna:
