@@ -17,7 +17,8 @@ Algunas cosas de mi:
 ![perrita](https://github.com/user-attachments/assets/2f3bca13-c41e-408e-81b6-ebb6acca89fe)
 
 ###### Sol:
-![perritas](https://github.com/user-attachments/assets/f9c1ad61-bc09-426b-9b66-f40f076b686f)
+![perritas](https://github.com/user-attachments/assets/82644a23-f98d-4ab2-8f9e-08e28b671f70)
+
 
 
 
